@@ -14,9 +14,9 @@
 <br><br><br>
 Instrucciones
 <br>
-5. vierta pequeñas porciones de masa.
+5. Vierta pequeñas porciones de masa.
 <br>
-2. Agregue los GUEBOS y la leche.
+2. Agregue los huevos y la leche.
 <br>
 1. Pele el VANANHO y machaquelo con un tenedor.
 <br>
