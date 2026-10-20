@@ -4,10 +4,10 @@
 <br><br>
 ## Ingredientes
 <br>
-- Un banano maduro.
-- Dos huevos.
-- Media taza de avena molida.
-- Un cuarto de taza de leche.
+- 1 (Un) banano maduro.
+- 2 (Dos) huevos.
+- 1/2 (Media) taza de avena molida.
+- 1/4 (Un cuarto) de taza de leche.
 - Una cucharadita de polvo de hornear.
 - Una pizca de canela.
 - Un poco de aceite para la sartén.
