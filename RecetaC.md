@@ -14,14 +14,14 @@
 <br><br><br>
 Instrucciones
 <br>
-5. BIERTA pequeñas porciones de masa.
+5. Vierta pequeñas porciones de masa.
 <br>
-2. Agregue los GUEBOS y la leche.
+2. Agregue los huevos y la leche.
 <br>
-1. Pele el VANANHO y machaquelo con un tenedor.
+1. Pele el banano y machaquelo con un tenedor.
 <br>
-3. Mezcle con la avena, la canela y el polvo de ORNEARH.
+3. Mezcle con la avena, la canela y el polvo de hornear.
 <br>
-6. Cocine por ambos lados y SIRBA los panqueques TIVIOS.
+6. Cocine por ambos lados y SIRBA los panqueques tibios.
 <br>
-4. CALIENTE una sartén ligeramente HENGRAZADHA.
+4. Caliente una sartén ligeramente engrasada.
