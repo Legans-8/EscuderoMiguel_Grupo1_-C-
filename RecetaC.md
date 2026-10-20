@@ -24,4 +24,4 @@ Instrucciones
 <br>
 6. Cocine por ambos lados y SIRBA los panqueques tibios.
 <br>
-4. Caliente una sartén ligeramente HENGRAZADHA.
+4. Caliente una sartén ligeramente engrasada.
