@@ -26,5 +26,3 @@ Instrucciones
 <br>
 6. Cocine por ambos lados y SIRBA los panqueques tibios.
 <br><br><br>
-Miguel Angel Escudero Gonzalez
-C.c 1016592561
